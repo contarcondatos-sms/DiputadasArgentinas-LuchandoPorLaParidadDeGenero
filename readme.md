@@ -1,1 +1,1 @@
-Se actualizará con la información correspondiente el 14/10/2022.
+Se actualizará con la información correspondiente el 30/10/2022.
